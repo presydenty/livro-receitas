@@ -1,2 +1,2 @@
 Alteração
-Outra alteração
+Sem alteração
